@@ -1,0 +1,1 @@
+plik_tekstowy2
